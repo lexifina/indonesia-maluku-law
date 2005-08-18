@@ -1,0 +1,6 @@
+# Pasal 3
+(1) Kesatuan Masyarakat Hukum Adat sebagaimqana dimaksud dalam Pasal 2 Peraturan Daerah ini yang sebelumnya karena perkembangan masyarakat dan perundang-undangan berubah nama menjadi Desa atau Kelurahan ditetapkan kembali menjadi Negeri atau yang disebut dengan nama lain berdasarkan adat istiadat dan budaya setempat.
+(2) Desa yang sebelumnya merupakan bagian dari wilayah kesatuan masyarakat adat negeri atau yang disebut dengan nama lain, dengan berlakunya Peraturan Daerah ini ditetapkan sebagai Negeri Administratif atau yang disebut dengan nama lain sesuai adat istiadat dan budaya masyarakat setempat.
+(3) Negeri atau disebut dengan nama lain sebagaimana dimaksud pada ayat (1) berwenang untuk mengatur dan mengurus rumah tangganya berdasarkan hak, asal usul dan adat istiadat termasuk urusan pemerintahannya.
+(4) Negeri Administratif atau yang disebut dengan nama lain sebagaimana dimaksud ayat (2) melaksanakan sebagian urusan Pemerintahan Negeri atau yang disebut dengan nama lain.
+(5) Pengaturan lebih lanjut tentang wewenang Negeri dan Negeri Admnistratif atau yang disebut dengan nama lain ditetapkan dengan Peraturan Daerah Kabupaten/Kota dalam wilayah Pemerintahan Provinsi Maluku.

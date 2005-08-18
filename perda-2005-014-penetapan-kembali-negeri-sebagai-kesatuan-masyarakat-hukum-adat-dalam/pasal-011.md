@@ -1,0 +1,2 @@
+# Pasal 11
+Ketentuan lebih lanjut tentang Perangkat Organisasi Pemerintah Negeri, Badan Musyawarah Negeri, Lembaga Adat / Kemasyarakatan, Peraturan Negeri, Keuangan Negeri, Pembinaan dan Pengawasan serta hal-hal lain yang berhubungan dengan Penetapan Kembali Negeri atau yang disebut dengan nama lain sebagai persekutuan masyarakat hukum adat di Provinsi Maluku akan ditetapkan lebih lanjut dengan Peraturan Daerah Provinsi, Kabupaten dan Kota, sesuai Adat Istiadat dan Hukum Adat setempat yang tidak bertentangan dengan Peraturan Perundang-Undangan yang berlaku.
