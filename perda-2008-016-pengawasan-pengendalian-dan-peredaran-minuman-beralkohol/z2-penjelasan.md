@@ -1,0 +1,9 @@
+# Penjelasan
+PENJELASAN ATAS PERATURAN DAERAH PROVINSI MALUKU NOMOR : 16 TAHUN 2008 TENTANG PEMGAWASAN, PENGENDALIAN DAN PEREDARAN MINUMAN BERALKOHOL
+I. PENJELASAN UMUM
+Berdasarkan Undang-Undang Nomor 34 Tahun 2000 tentang Perubahan Atas Undang-Undang Nomor 18 Tahun 1997 tentang Pajak Daerah dan Retribusi Daerah jo Peraturan Pemerintah Nomor 66 Tahun 2001 tentang Retribusi Daerah, Pemerintah Daerah dalam melaksanakan tugas pemerintahan pembangunan diberikan kewenangan untuk menggali potensi Daerah sebagai sumber penerimaan Daerah yang dapat mendukung pembiayaan pengeluaran Daerah.
+Sesuai Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah, Undang-Undang Nomor 33 Tahun 2004 tentang Perimbangan Keuangan Antara Pemerintah Pusat dan Pemerintah Daerah dan Peraturan Pemerintah Nomor 38 Tahun 2007 tentang Pembangian Urusan Pemerintahan Antara Pemerintah Pusat, Pemerintah Daerah Provinsi dan Pemerintah Daerah Kabupaten/Kota, maka dengan memperhatikan potensi dan keanekaragaman dengan kewenangan yang luas, nyata dan bertanggung jawab secara profesional sehingga perlu diatur pemanfaatan sumber daya Daerah sebagai pendapatan Daerah yang potensial termasuk Pengawasan, Pengendalian dan Peredaran Minuman Beralkohol.
+Pengawasan, Pengendalian dan Peredaran Minuman Beralkohol yang diberikan oleh Pemerintah Daerah merupakan salah satu sumber pendapatan yang potensial guna membiayai penyelenggaraan pemerintahan dan pembangunan Daerah yang pada dasarnya tidak hanya menjadi urusan Pemerintah Daerah sebagai pihak menetapkan dan memungut Retribusi Daerah, tetapi juga berkaitan dengan partisipasi masyarakat dalam pembangunan Daerah.
+Melalui pungutan Pengawasan, Pengendalian dan Peredaran Minuman Beralkohol dapat meningkatkan kinerja Pemerintah Daerah dalam memberikan pelayanan kepada masyarakat, juga pada giliranya dapat meningkatkan kesejahteraan masyarakat.
+II. PENJELASAN PASAL DEMI PASAL
+Pasal 1 sapai dengan Pasal 26 : Cukup jelas.
