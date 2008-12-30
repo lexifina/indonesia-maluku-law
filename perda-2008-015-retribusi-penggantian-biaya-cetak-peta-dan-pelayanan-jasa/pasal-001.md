@@ -1,0 +1,13 @@
+# Pasal 1
+Dalam Peraturan Daerah ini yang dimaksud dengan :
+1. Daerah adalah Provinsi Maluku 2. Pemerintah Daerah adalah Pemerintah Provinsi Maluku 3. Kepala Daerah adalah Gubernur Maluku 4. Pejabat adalah Pegawai yang diberi tugas tertentu dibidang retribusi Daerah sesuai dengan Peraturan Perundang - undangan yang berlaku 5. Badan adalah suatu bentuk Badan Usaha yang meliputi Perseroan Terbatas, perseroan Komanditer, Perseroan lainnya, Badan Usaha Milik Negara atau Daerah dengan nama dan bentuk apapun, Persekutuan, Perkumpulan, Firma, Kongsi, Koperasi, Yayasan, atau Organisasi yang sejenis, Lembaga, dan Dana Pensiun, Bentuk Usaha tetap serta Bentuk Usaha lainnya.
+6. Peta adalah suatu benda yang terbuat dari kertas atau sejenisnya yang memuat gambar mengenai suatu lokasi/wilayah dengan skala tertentu dimana terdapat batas-batas, jalan, sungai, daratan, lautan termasuk peta provinsi dan data Rencana Tata Ruang Wilayah (RT/RW) Provinsi.
+7. Jasa adalah kegiatan Pemerintah Daerah berupa Usaha dan pelayanan yang menyebabkan barang, fasilitas atau kemanfaatan lainnya yang dapat dinikmati oleh orang pribadi atau badan.
+8. Jasa umum adalah jasa yang disediakan atau diberikan oleh Pemerintah untuk tujuan kepentingan dan kemanfaatan lainnya yang dapat dinikmati oleh orang pribadi atau badan 9. Retribusi jasa Ketatausahaan yang selanjutnya disebut retribusi adalah pembayaran atas pelayanan jasa wajib retribusi adalah orang pribadi atau badan yang menurut peraturan Perundang – undangan retribusi diwajibkan untuk melakukan pembayaran retribusi.
+10. Wajib Retribusi adalah orang pribadi atau badan yang menurut Peraturan Perundang-undangan retribusi diwajibkan untuk melakukan pembayaran retribusi.
+11. Surat Ketetapan retribusi Daerah yang selanjutnya dapat disingkat SKRD adalah Surat Ketetapan Retribusi yang menentukan besarnya pokok retribusi.
+12. Surat Tagihan Retribusi Daerah, yang selanjutnya dapat disingkat STRD adalah Surat untuk melakukan Tagihan retribusi dan atau sanksi administrasi berupa bunga atau denda.
+13. Pemeriksaan adalah serangkaian kegiatan untuk mencari, mengumpul kan dan mengolah data dan atau keterangan lainnya dalam rangka pengawasan kepatuhan pemenuhan kewajiban retribusi daerah berdasarkan peraturan perundang-undangan Retribusi Daerah.
+14. Penyidikan tindak Pidana dibidang Retribusi Daerah adalah serangkaian tindakan yang dilakukan oleh penyidik Pegawai Negeri Sipil yang selanjutnya disebut Penyidik; untuk mencari serta mengumpulkan bukti yang dengan bukti itu membuat terang tindak pidana dibidang Retribusi Daerah yang terjadi serta menemukan tersangkanya.
+BAB II
+NAMA, OBJEK DAN SUBJEK RETRIBUSI
