@@ -1,0 +1,2 @@
+# Pasal 8
+Pengelolaan Wilayah Pesisir dan Pulau-Pulau Kecil meliputi kegiatan perencanaan, pemanfaatan, pemeliharaan, pengawasan, dan pengendalian terhadap interaksi manusia dalam memanfaatkan Sumber Daya Pesisir dan Pulau-Pulau Kecil serta proses alamiah secara terpadu dan berkelanjutan dalam upaya meningkatkan Kesejahteraan Masyarakat Maluku dan menjaga keutuhan Negara Kesatuan Republik Indonesia.

@@ -1,0 +1,3 @@
+# Pasal 46
+(1) Untuk meningkatkan kualitas perencanaan dan implementasi Pengelolaan Wilayah Pesisir dan Pulau-Pulau Kecil, Pemerintah Daerah melakukan penelitian dan pengembangan ilmu pengetahuan dan teknologi serta pengembangan sumber daya manusia di bidang pengelolaan Wilayah Pesisir dan Pulau-Pulau Kecil secara berkelanjutan.
+Pemerintah Daerah Provinsi Maluku (2) Pemerintah Daerah mengatur, mendorong, dan/atau menyelenggarakan penelitian dan pengembangan Pengelolaan Wilayah Pesisir dan Pulau-Pulau Kecil untuk menghasilkan pengetahuan dan teknologi yang dibutuhkan dalam pengelolaan Wilayah Pesisir dan Pulau-Pulau Kecil agar lebih efektif, efisien, ekonomis, berdaya saing tinggi dan ramah lingkungan, serta menghargai kearifan tradisi atau budaya lokal.
