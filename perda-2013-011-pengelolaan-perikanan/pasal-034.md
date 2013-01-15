@@ -1,0 +1,2 @@
+# Pasal 34
+Setiap orang yang dengan sengaja memiliki,menguasai, membawa, dan/atau menggunakan alat penangkap ikan dan/atau alat bantu penangkapan ikanyang mengganggu dan merusak keberlanjutan sumberdaya ikan di kapal penangkap ikan di wilayah pengelolaan perikanan Daerah sebagaimana dimaksud dalam Pasal 6 ayat (2) dipidana dengan pidana penjara paling lama 5 (lima) tahun dan denda paling banyak Rp2.000.000.000,00 (dua miliar rupiah).

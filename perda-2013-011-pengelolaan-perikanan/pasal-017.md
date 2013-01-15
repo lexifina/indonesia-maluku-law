@@ -1,0 +1,3 @@
+# Pasal 17
+(1) Pemerintah daerah menyusun dan mengembangkan sistem informasi dan data statistik perikanan serta menyelenggarakan pengumpulan, pengolahan, analisis, penyimpanan, penyajian, dan penyebaran data potensi, sarana dan prasarana, produksi, penanganan, pengolahan dan pemasaran ikan, serta data sosial ekonomi yang terkait dengan pelaksanaan pengelolaan sumber daya ikan dan pengembangan sistem bisnis perikanan dalam wilayah pengelolaan perikanan daerah.
+(2) Pemerintah daerah mengadakan pusat data dan informasi perikanan untuk menyelenggarakan sistem informasi dan data statistik perikanan dalam lingkup wilayah pengelolaan perikanan daerah dan wilayah pengelolaan perikanan Republik Indonesia yang termasuk dan berbatasan dengan wilayah pengelolaan perikanan daerah.

@@ -1,0 +1,2 @@
+# Pasal 33
+Setiap orang yang dengan sengaja di wilayah pengelolaan perikanan daerah melakukan penangkapan ikan dan/atau pembudidayaan ikan dengan menggunakan bahan kimia, bahan biologis, bahan peledak, alat dan/atau cara, dan/atau bangunan yang dapat merugikan dan/atau membahayakan kelestarian sumber daya ikan dan/atau lingkungannya sebagaimana dimaksud dalam Pasal 6 ayat (1), dipidana dengan pidana penjara paling lama 10 (sepuluh) tahun dan denda paling banyak Rp. 2.000.000.000,00 (dua miliar rupiah).
