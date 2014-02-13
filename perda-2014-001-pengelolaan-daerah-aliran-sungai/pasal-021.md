@@ -1,0 +1,2 @@
+# Pasal 21
+Persyaratan kelestarian ekosistim dalam Pengelolaan DAS sebagaimana dimaksud dalam Pasal 19 huruf b adalah ketentuan yang harus dipenuhi untuk suatu kegiatan dan usaha pada kawasan budidaya dan kawasan lindung, baik pada bagian hulu, bagian tengah maupun hilir DAS, agar menghasilkan nilai sinergi terbesar bagi kesejahteraan masyarakat serta menjamin daya dukung wilayah DAS dan daya tampung lingkungan.

@@ -1,0 +1,4 @@
+# Pasal 37
+(1) Pembinaan dan pemberdayaan dalam mengelola DAS bertujuan untuk meningkatkan kapasitas dan kapabilitas institusi Pemerintah, Swasta dan masyarakat dalam perencanaan, pengorganisasian, pelaksanaan, monitoring dan evaluasi, serta pendanaan.
+(2) Pembinaan sebagaimana dimaksud pada ayat (1) dilakukan oleh dan antar Pemerintah secara berjenjang maupun oleh dan antar swasta dan institusi masyarakat melalui pemberian pedoman, supervisi dan konsultasi, pendidikan dan pelatihan, pemberian bantuan tehnis, sosialisasi serta penyediaan sarana dan prasarana.
+(3) Pemberdayaan sebagaimana dimaksud pada ayat (1) dilakukan oleh Pemerintah, Swasta maupun institusi masyarakat kepada masyarakat yang mendiami DAS dan sekitarnya secara partisipatif melalui pendidikan dan pelatihan, penyuluhan, pendampingan, pemberian bantuan modal, advokasi, serta penyediaan sarana dan prasarana.
