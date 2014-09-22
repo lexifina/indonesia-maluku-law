@@ -1,0 +1,2 @@
+# Pasal 57
+Pada saat Peraturan Daerah ini mulai berlaku, Peraturan Daerah Nomor 03 Tahun 2007 tentang Pembentukan Organisasi dan Tata Kerja Dinas-Dinas Daerah Provinsi Maluku (Lembaran Daerah Tahun 2007 Nomor 03, Tambahan Lembaran Daerah Nomor 03) dan Peraturan Daerah Provinsi Maluku Nomor 02 Tahun 2013 tentang Perubahan Atas Peraturan Daerah Provinsi Maluku Nomor 03 Tahun 2007 tentang Pembentukan Organisasi dan Tata Kerja Dinas-Dinas Daerah Provinsi Maluku (Lembaran Daerah Tahun 2013 Nomor 02, Tambahan Lembaran Daerah Nomor 02), dicabut dan dinyatakan tidak berlaku.
