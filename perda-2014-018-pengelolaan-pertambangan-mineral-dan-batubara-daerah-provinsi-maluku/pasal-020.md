@@ -1,0 +1,3 @@
+# Pasal 20
+(1) Untuk mendapatkan WIUP mineral bukan logam atau batuan, badan usaha, koperasi, atau perseorangan mengajukan permohonan wilayah sebagaimana dimaksud dalam Pasal 8 ayat (5) kepada Gubernur, untuk permohonan WIUP yang berada lintas wilayah kabupaten/kota dalam 1 (satu) provinsi dan/atau wilayah laut 4 (empat) mil sampai dengan 12 (dua belas) mil.
+(2) Sebelum memberikan WIUP mineral bukan logam atau batuan sebagaimana dimaksud pada ayat (1) Gubernur harus mendapat rekomendasi terlebih dahulu dari bupati/walikota (3) Bupati/walikota memberikan rekomendasi sebagaimana dimaksud pada ayat (2) dalam jangka waktu paling lama 5 (lima) hari kerja sejak diterimanya permintaan rekomendasi.

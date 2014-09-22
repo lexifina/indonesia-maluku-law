@@ -1,0 +1,2 @@
+# Pasal 18
+(1) Apabila peserta lelang yang memasukan penawaran harga sebagaimana dimaksud dalam Pasal 14 ayat (1) huruf k hanya terdapat 1 (satu) peserta lelang, dilakukan pelelangan ulang (2) Dalam hal peserta lelang ulang sebagaimana dimaksud pada ayat (1) tetap hanya 1 (satu) peserta, ditetapkan sebagai pemenang dengan ketentuan harga penawaran harus sama atau lebih tinggi dari harga dasar lelang yang telah ditetapkan.

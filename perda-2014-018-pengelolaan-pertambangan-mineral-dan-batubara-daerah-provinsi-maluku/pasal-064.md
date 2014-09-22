@@ -1,0 +1,4 @@
+# Pasal 64
+(1) Penghentian sementara karena keadaan kahar sebagaimana dimaksud dalam Pasal 63 ayat (1) huruf a harus diajukan oleh pemegang IUP dalam jangka waktu paling lambat 14 (empat belas) hari kalender sejak terjadinya keadaan kahar kepada Gubernur untuk memperoleh persetujuan (2) Penghentian sementara sebagaimana dimaksud pada ayat (1) diberikan untuk jangka waktu paling lama 1 (satu) tahun dan dapat diperpanjang 1 (satu) kali.
+(3) Penghentian sementara karena keadaan yang menghalangi sebagaimana dimaksud dalam Pasal 63 ayat (1) huruf b diberikan 1 (satu) kali dengan jangka waktu 1 (satu) tahun dan dapat diperpanjang 1 (satu) kali dengan jangka waktu 1 (satu) tahun pada setiap tahapan kegiatan dengan persetujuan Gubernur.
+(4) Apabila jangka waktu penghentian sementara sebagaimana dimaksud pada ayat (3) telah berakhir, dapat diberikan perpanjangan jangka waktu penghentian sementara dalam hal terkait perizinan dari instansi lain.
