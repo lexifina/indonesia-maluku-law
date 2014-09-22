@@ -1,0 +1,4 @@
+# Pasal 55
+(1) Dalam melaksanakan tugas dan fungsinya kepala satuan kerja/unit kerja perangkat daerah serta kelompok jabatan fungsional di lingkungan lembaga teknis daerah wajib menerapkan prinsip koordinasi, integrasi, sinkronisasi, simplifikasi, transparansi, akuntabilitas, efisiensi dan efektivitas, secara vertikal dan horisontal.
+(2) Setiap kepala satuan kerja/unit kerja perangkat daerah di lingkungan lembaga teknis daerah, dalam memimpin dan mengkoordinasikan bawahannya wajib memberikan bimbingan/petunjuk, mengendalikan serta mengawasi pelaksanaan tugas bawahan.
+(3) Setiap pimpinan satuan kerja/unit kerja perangkat daerah di lingkungan lembaga teknis daerah wajib bekerjasama dengan pimpinan satuan kerja perangkat daerah/unit kerja perangkat daerah lainnya di bawah koordinasi Sekretaris Daerah sesuai dengan bidang tugas masing-masing.
