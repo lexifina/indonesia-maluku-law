@@ -1,0 +1,3 @@
+# Pasal 101
+(1) Wajib Pajak yang karena kealpaanya tidak menyampaikan SPTPD atau mengisi dengan tidak benar atau tidak lengkap atau melampirkan keterangan yang tidak benar sehingga merugikan keuangan Daerah dipidana dengan pidana kurungan paling lama 1 (satu) tahun atau pidana denda paling banyak 2 (dua) kali jumlah Pajak Terutang yang tidak atau kurang bayar.
+(2) Wajib Pajak yang dengan sengaja tidak menyampaikan SPTPD atau mengisi dengan tidak benar atau tidak lengkap atau melampirkan keterangan yang tidak benar sehingga merugikan keuangan Daerah dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak 4 (empat) kali jumlah pajak terutang yang tidak atau kurang dibayar.
