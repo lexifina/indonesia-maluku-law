@@ -1,0 +1,2 @@
+# Pasal 23
+Peraturan pelaksanaan dari Peraturan Daerah ini harus ditetapkan paling lama 1 (satu) tahun terhitung sejak Peraturan Daerah ini ditetapkan.
