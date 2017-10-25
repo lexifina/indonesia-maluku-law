@@ -1,0 +1,8 @@
+# Pasal 13
+(1) Rumah Negara dan perlengkapannya serta kendaraan dinas jabatan sebagaimana dimaksud dalam Pasal 9 ayat (2) huruf a dan huruf b disediakan bagi Pimpinan DPRD sesuai standar berdasarkan ketentuan peraturan perundang-undangan.
+(2) Rumah Negara dan perlengkapannya sebagaimana dimaksud dalam Pasal 9 ayat (3) huruf a dapat disediakan bagi Anggota DPRD sesuai standar berdasarkan ketentuan peraturan perundang-undangan.
+(3) Pemakaian Rumah Negara dan perlengkapannya serta kendaraan dinas jabatan sebagaimana dimaksud pada ayat (1) dan pemakaian rumah negara dan perlengkapannya sebagaimana dimaksud pada ayat (2) dilakukan sesuai dengan ketentuan peraturan perundang-undangan.
+(4) Pemeliharaan Rumah Negara dan perlengkapannya serta kendaraan dinas jabatan sebagaimana dimaksud pada ayat (1) dan pemeliharaan rumah negara dan perlengkapannya sebagaimana dimaksud pada ayat (2) dibebankan pada APBD.
+(5) Dalam hal Pimpinan DPRD berhenti atau berakhir masa bakti, rumah negara dan perlengkapannya serta kendaraan dinas jabatan wajib dikembalikan dalam keadaan baik kepada Pemerintah Daerah paling lambat 1 (satu) bulan sejak tanggal berhenti atau berakhirnya masa bakti.
+(6) Dalam hal Anggota DPRD yang disediakan Rumah Negara dan perlengkapannya berhenti atau berakhir masa bakti, Rumah Negara dan perlengkapannya wajib dikembalikan dalam keadaan baik kepada Pemerintah Daerah paling lambat 1 (satu) bulan sejak tanggal berhenti atau berakhirnya masa bakti.
+(7) Ketentuan lebih lanjut mengenai tata cara pengembalian Rumah Negara dan perlengkapannya serta kendaraan dinas jabatan diatur dalam Peraturan Gubernur sesuai dengan peraturan Perundang-Undangan.
