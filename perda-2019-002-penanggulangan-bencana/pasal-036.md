@@ -1,0 +1,9 @@
+# Pasal 36
+(1) Perlindungan terhadap kelompok rentan sebagaimana dimaksud dalam Pasal 30 huruf e dilakukan dengan memberikan prioritas kepada korban bencana yang mengalami luka parah dan kelompok rentan berupa penyelamatan, evakuasi, pengamanan, pelayanan kesehatan, dan psikososial.
+(2) Kelompok rentan sebagaimana dimaksud pada ayat (1) terdiri atas:
+a. bayi, balita dan anak-anak;
+b. perempuan yang sedang mengandung atau menyusui;
+c. penyandang cacat; dan d. orang lanjut usia.
+(3) Upaya perlindungan terhadap kelompok rentan sebagaimana dimaksud pada ayat (1) dilaksanakan oleh instansi/lembaga terkait yang dikoordinasikan oleh kepala BPBD dengan pola pendampingan/fasilitasi.
+Paragraf 7
+Pemulihan Segera Prasarana dan Sarana Vital
