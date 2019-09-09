@@ -1,0 +1,3 @@
+# Pasal 48
+(1) Fasilitasi Pencegahan dan peningkatan kualitas terhadap Perumahan Kumuh dan Permukiman Kumuh guna meningkatkan mutu kehidupan dan penghidupan masyarakat penghuni dilakukan untuk mencegah tumbuh dan berkembangnya Perumahan Kumuh dan Permukiman Kumuh baru serta untuk menjaga dan meningkatkan kualitas dan fungsi Perumahan dan Permukiman.
+(2) Fasilitasi Pencegahan dan peningkatan kualitas terhadap Perumahan Kumuh dan Permukiman Kumuh sebagaimana dimaksud pada ayat (1) dilaksanakan berdasarkan pada prinsip kepastian bermukim yang menjamin hak setiap warga negara untuk menempati, menikmati, dan/atau memiliki tempat tinggal sesuai dengan ketentuan peraturan perundang-undangan.
