@@ -1,0 +1,6 @@
+# Pasal 8
+(1) Penggolongan jenis komoditas mineral bukan logam sebagaimana dimaksud pada pasal 8 ayat (1) huruf a meliputi intan, korundum, grafit, arsen, pasirkwarsa, fluorspar, kreolit, yodium, brom, klor, belerang, fosfat, halit, asbes, talk, mika, magnesit, yarosit, oker, fluorit, ballclay, fireclay, zeolit, kaolin, feldspar, bentonit, gypsum , dolomite, calsit, rijang, pirofilit, kwarsit, zircon, wolastonit, tawas, batu kwarsa, perlit, garam batu, clay dan batu gamping untuk semen; dan (2) Penggolongan jenis komoditas batuan sebagaimana dimaksud Pasal 8 ayat (1) huruf b meliputi, pumice , tras, tuseki, opsidian, marmer, perlit, tanah diatome, tanah serap ( fullers earth ), slate, granit, granodiorit, andesit, gabro, peridotit, basalt, trakhit, leusit, tanah liat, tana hurug, batuapung, opal, kalsedon, chert, kristalkuarsa, jasper, krisoprase, kayu terkersikan, gamet, giok, agat, diorite, topas, batu gunung quary besar, kerikil galian dari bukit, kerikil sungai, batu kali, kerikil sungai ayak tanpa pasir, pasirurug, pasir pasang, kerikil berpasir alami (sirtu), bahan timbunan pilihan (tanah), urugan tanah setempat, tanah merah (laterit), batu gamping, onik, dan pasir yang tidak mengandung sure mineral atau unsure mineral bukan logam dalam jumlah yang berarti di tinjau dari segi ekonomi pertambangan.
+BAB VII
+IZIN PERTAMBANGAN
+Bagian Kesatu
+Umum
