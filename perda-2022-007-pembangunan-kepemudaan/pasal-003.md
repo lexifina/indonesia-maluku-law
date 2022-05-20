@@ -1,0 +1,2 @@
+# Pasal 3
+Pembangunan kepemudaan bertujuan untuk terwujudnya pemuda yang beriman dan bertaqwa kepada Tuhan Yang Maha Esa, berahlak mulia, sehat, cerdas, kreatif, inovatif, mandiri, demokratis, bertanggungjawab, berdaya saing, serta memiliki jiwa kepemimpinan, kewirausahaan, kepeloporan, dan kebangsaan berdasarkan Pancasila dan Undang-Undang Dasar Negara Republik Indonesia Tahun 1945 dalam kerangka Negara Kesatuan Republik Indonesia.
