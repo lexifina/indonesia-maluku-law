@@ -1,0 +1,7 @@
+# Pasal 36
+(1) Gubernur memprioritaskan pemenuhan jumlah Polisi Pamong Praja dalam setiap formasi penerimaan Pegawai Negeri Sipil di lingkungan Pemerintah Provinsi.
+(2) Dalam hal pemenuhan jumlah Polisi Pamong Praja belum dapat terpenuhi, Gubernur memenuhi kekurangan tersebut melalui perekrutan dan pengangkatan pegawai pemerintah dengan perjanjian kerja untuk diangkat sebagai pegawai pembantu Polisi Pamong Praja.
+(3) Perekrutan dan pengangkatan pegawai pemerintah dengan perjanjian kerja oleh Gubernur sebagaimana dimaksud pada ayat (2) dilakukan berdasarkan usulan Kepala Satpol PP serta disesuaikan dengan kemampuan keuangan Daerah.
+(4) Kepala Satpol PP menyusun rencana kebutuhan jumlah Polisi Pamong Praja yang didasarkan pada kebutuhan untuk melaksanakan penegakan Perda Provinsi dan Peraturan Gubernur serta untuk menyelenggarakan ketenteraman, ketertiban umum dan pelindungan masyarakat berdasarkan urusan pemerintahan konkuren yang menjadi kewenangan Pemerintah Provinsi.
+(5) Rencana kebutuhan jumlah Polisi Pamong Praja sebagaimana dimaksud pada ayat (4) disusun oleh Kepala Satpol PP setelah berkoordinasi dengan perangkat daerah Provinsi yang melaksanakan urusan pemerintahan dibidang perencanaan pembangunan daerah dan perangkat daerah Provinsi yang melaksanakan urusan pemerintahan daerah dibidang kepegawaian.
+(6) Rencana kebutuhan jumlah Polisi Pamong Praja sebagaimana dimaksud pada ayat (5) disusun untuk jangka waktu 5 (lima) tahun.
