@@ -1,0 +1,6 @@
+# Pasal 21
+(1) Strategi untuk pengembangan dan peningkatan kemudahan akses dan pergerakan wisatawan menuju destinasi dan pergerakan wisatawan di Destinasi Pariwisata Provinsi sebagaimana dimaksud dalam Pasal 20 huruf a, meliputi:
+a. meningkatkan ketersediaan moda transportasi sebagai sarana pergerakan wisatawan menuju destinasi dan pergerakan wisatawan di Destinasi Pariwisata Provinsi sesuai kebutuhan dan perkembangan pasar;
+b. meningkatkan kecukupan kapasitas angkut moda transportasi menuju destinasi dan pergerakan wisatawan di destinasi pariwisata sesuai kebutuhan dan perkembangan pasar; dan c. mengembangkan keragaman atau diversifikasi jenis moda transportasi menuju destinasi dan pergerakan wisatawan di destinasi pariwisata sesuai kebutuhan dan perkembangan pasar.
+(2) Strategi untuk pengembangan dan peningkatan kenyamanan dan keamanan pergerakan wisatawan menuju destinasi dan pergerakan wisatawan di Destinasi Pariwisata Provinsi sebagaimana dimaksud dalam Pasal 20 huruf b, meliputi mengembangkan dan meningkatkan kualitas:
+a. kenyamanan moda transportasi menuju destinasi dan pergerakan wisatawan di Destinasi Pariwisata Provinsi sesuai kebutuhan dan perkembangan pasar; dan b. keamanan moda transportasi untuk menjamin keselamatan perjalanan wisatawan menuju destinasi dan pergerakan wisatawan di Destinasi Pariwisata Provinsi.
